@@ -8,9 +8,13 @@ The games are:
 
 ### Mario & Luigi: Bowser's Inside Story
 
-![mario and luigi: bowser inside story](https://en.m.wikipedia.org/wiki/File:Mario_%26_Luigi_3_NA_Cover.PNG)
+![mario and luigi: bowser inside story](https://wowroms-photos.com/emulators-roms-logo/36/18147/420-420/Mario+&+Luigi+-+Bowser's+Inside+Story+(USA)+(En,Fr,Es)-image.jpg)
 
-### Pokémon Platinum
+[Download](https://wowroms.com/es/roms/nintendo-ds/mario-and-luigi-bowsers-inside-story/18147.html)
 
-![pokemon platium](https://en.m.wikipedia.org/wiki/File:Pokemon_Platinum.png)
+### Pokemon Platinum
+
+![pokemon platium](https://upload.wikimedia.org/wikipedia/commons/thumb/d/d7/Pokemon_Platinum_Version_logo.png/640px-Pokemon_Platinum_Version_logo.png)
+
+[Download](https://www.emulatorgames.net/roms/nintendo-ds/pokemon-platinum-version-us/)
 
